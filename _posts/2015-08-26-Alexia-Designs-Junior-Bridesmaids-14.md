@@ -9,7 +9,7 @@ tags: [Alexia Designs Junior Bridesmaids]
 Just **$179.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alexia-designs-junior-bridesmaids/46818-alexia-designs-junior-bridesmaids-14.html"><img src="//static.msromantic.com/102714/alexia-designs-junior-bridesmaids-14.jpg" alt="Alexia Designs Junior Bridesmaids  14" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alexia-designs-junior-bridesmaids/46818-alexia-designs-junior-bridesmaids-14.html"><img src="//static.msromantic.com/102714/alexia-designs-junior-bridesmaids-14.jpg" alt="Alexia Designs Junior Bridesmaids  14" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/alexia-designs-junior-bridesmaids/46818-alexia-designs-junior-bridesmaids-14.html](https://www.readybrides.com/en/alexia-designs-junior-bridesmaids/46818-alexia-designs-junior-bridesmaids-14.html)
+Buy it: [https://www.antebrands.com/en/alexia-designs-junior-bridesmaids/46818-alexia-designs-junior-bridesmaids-14.html](https://www.antebrands.com/en/alexia-designs-junior-bridesmaids/46818-alexia-designs-junior-bridesmaids-14.html)

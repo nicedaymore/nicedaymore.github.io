@@ -9,7 +9,7 @@ tags: [Marylise Collection16]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/marylise-collection16/46253-marylise-jim.html"><img src="//static.msromantic.com/101729/marylise-jim.jpg" alt="Marylise JIM" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marylise-collection16/46253-marylise-jim.html"><img src="//static.msromantic.com/101729/marylise-jim.jpg" alt="Marylise JIM" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/marylise-collection16/46253-marylise-jim.html](https://www.readybrides.com/en/marylise-collection16/46253-marylise-jim.html)
+Buy it: [https://www.antebrands.com/en/marylise-collection16/46253-marylise-jim.html](https://www.antebrands.com/en/marylise-collection16/46253-marylise-jim.html)

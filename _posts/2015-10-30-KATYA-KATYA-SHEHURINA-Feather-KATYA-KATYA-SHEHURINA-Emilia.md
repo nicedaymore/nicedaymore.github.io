@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA Feather]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-feather/43614-katya-katya-shehurina-emilia.html"><img src="//static.msromantic.com/94978/katya-katya-shehurina-emilia.jpg" alt="KATYA KATYA SHEHURINA Emilia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-feather/43614-katya-katya-shehurina-emilia.html"><img src="//static.msromantic.com/94978/katya-katya-shehurina-emilia.jpg" alt="KATYA KATYA SHEHURINA Emilia" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-feather/43614-katya-katya-shehurina-emilia.html](https://www.readybrides.com/en/katya-katya-shehurina-feather/43614-katya-katya-shehurina-emilia.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-feather/43614-katya-katya-shehurina-emilia.html](https://www.antebrands.com/en/katya-katya-shehurina-feather/43614-katya-katya-shehurina-emilia.html)

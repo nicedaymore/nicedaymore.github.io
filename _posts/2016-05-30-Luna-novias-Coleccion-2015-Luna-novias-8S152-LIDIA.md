@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2015]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46162-luna-novias-8s152-lidia.html"><img src="//static.msromantic.com/101557/luna-novias-8s152-lidia.jpg" alt="Luna novias 8S152 LIDIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46162-luna-novias-8s152-lidia.html"><img src="//static.msromantic.com/101557/luna-novias-8s152-lidia.jpg" alt="Luna novias 8S152 LIDIA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46162-luna-novias-8s152-lidia.html"><img src="//static.msromantic.com/101556/luna-novias-8s152-lidia.jpg" alt="Luna novias 8S152 LIDIA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2015/46162-luna-novias-8s152-lidia.html](https://www.readybrides.com/en/luna-novias-coleccion-2015/46162-luna-novias-8s152-lidia.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46162-luna-novias-8s152-lidia.html"><img src="//static.msromantic.com/101556/luna-novias-8s152-lidia.jpg" alt="Luna novias 8S152 LIDIA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2015/46162-luna-novias-8s152-lidia.html](https://www.antebrands.com/en/luna-novias-coleccion-2015/46162-luna-novias-8s152-lidia.html)

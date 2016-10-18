@@ -9,7 +9,7 @@ tags: [J. Mendel,Sheath/Column,Illusion,Floor-Length,Short Sleeves]
 Just **$389.99**
 ###   Short Sleeves Floor-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>J. Mendel</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/j-mendel/44380-j-mendel-bridal-2015-collection-style-16.html"><img src="//static.msromantic.com/96950/j-mendel-bridal-2015-collection-style-16.jpg" alt="J. Mendel bridal-2015-collection Style 16" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/j-mendel/44380-j-mendel-bridal-2015-collection-style-16.html"><img src="//static.msromantic.com/96950/j-mendel-bridal-2015-collection-style-16.jpg" alt="J. Mendel bridal-2015-collection Style 16" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/j-mendel/44380-j-mendel-bridal-2015-collection-style-16.html](https://www.readybrides.com/en/j-mendel/44380-j-mendel-bridal-2015-collection-style-16.html)
+Buy it: [https://www.antebrands.com/en/j-mendel/44380-j-mendel-bridal-2015-collection-style-16.html](https://www.antebrands.com/en/j-mendel/44380-j-mendel-bridal-2015-collection-style-16.html)

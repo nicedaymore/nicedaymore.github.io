@@ -9,7 +9,7 @@ tags: [Le Spose di Giò Classica]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-spose-di-gio-classica/43273-le-spose-di-gio-cl15.html"><img src="//static.msromantic.com/94628/le-spose-di-gio-cl15.jpg" alt="Le Spose di Giò CL_15" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-spose-di-gio-classica/43273-le-spose-di-gio-cl15.html"><img src="//static.msromantic.com/94628/le-spose-di-gio-cl15.jpg" alt="Le Spose di Giò CL_15" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-spose-di-gio-classica/43273-le-spose-di-gio-cl15.html](https://www.readybrides.com/en/le-spose-di-gio-classica/43273-le-spose-di-gio-cl15.html)
+Buy it: [https://www.antebrands.com/en/le-spose-di-gio-classica/43273-le-spose-di-gio-cl15.html](https://www.antebrands.com/en/le-spose-di-gio-classica/43273-le-spose-di-gio-cl15.html)

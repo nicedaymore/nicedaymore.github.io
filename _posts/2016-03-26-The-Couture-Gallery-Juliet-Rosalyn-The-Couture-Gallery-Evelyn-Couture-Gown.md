@@ -9,7 +9,7 @@ tags: [The Couture Gallery Juliet Rosalyn]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-couture-gallery-juliet-rosalyn/47031-the-couture-gallery-evelyn-couture-gown.html"><img src="//static.msromantic.com/103161/the-couture-gallery-evelyn-couture-gown.jpg" alt="The Couture Gallery Evelyn Couture Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-couture-gallery-juliet-rosalyn/47031-the-couture-gallery-evelyn-couture-gown.html"><img src="//static.msromantic.com/103161/the-couture-gallery-evelyn-couture-gown.jpg" alt="The Couture Gallery Evelyn Couture Gown" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-couture-gallery-juliet-rosalyn/47031-the-couture-gallery-evelyn-couture-gown.html](https://www.readybrides.com/en/the-couture-gallery-juliet-rosalyn/47031-the-couture-gallery-evelyn-couture-gown.html)
+Buy it: [https://www.antebrands.com/en/the-couture-gallery-juliet-rosalyn/47031-the-couture-gallery-evelyn-couture-gown.html](https://www.antebrands.com/en/the-couture-gallery-juliet-rosalyn/47031-the-couture-gallery-evelyn-couture-gown.html)

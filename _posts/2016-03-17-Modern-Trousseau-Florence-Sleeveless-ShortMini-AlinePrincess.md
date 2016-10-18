@@ -9,7 +9,7 @@ tags: [Modern Trousseau,Modern Trousseau ,Aline/Princess ,V-neck,Short/Mini,Slee
 Just **$409.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Modern Trousseau </td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/modern-trousseau/46555-modern-trousseau-florence.html"><img src="//static.msromantic.com/102388/modern-trousseau-florence.jpg" alt="Modern Trousseau Florence" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modern-trousseau/46555-modern-trousseau-florence.html"><img src="//static.msromantic.com/102388/modern-trousseau-florence.jpg" alt="Modern Trousseau Florence" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/modern-trousseau/46555-modern-trousseau-florence.html](https://www.readybrides.com/en/modern-trousseau/46555-modern-trousseau-florence.html)
+Buy it: [https://www.antebrands.com/en/modern-trousseau/46555-modern-trousseau-florence.html](https://www.antebrands.com/en/modern-trousseau/46555-modern-trousseau-florence.html)

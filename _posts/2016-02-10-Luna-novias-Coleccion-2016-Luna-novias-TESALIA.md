@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2016]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46052-luna-novias-tesalia.html"><img src="//static.msromantic.com/101320/luna-novias-tesalia.jpg" alt="Luna novias TESALIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46052-luna-novias-tesalia.html"><img src="//static.msromantic.com/101320/luna-novias-tesalia.jpg" alt="Luna novias TESALIA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46052-luna-novias-tesalia.html"><img src="//static.msromantic.com/101319/luna-novias-tesalia.jpg" alt="Luna novias TESALIA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2016/46052-luna-novias-tesalia.html](https://www.readybrides.com/en/luna-novias-coleccion-2016/46052-luna-novias-tesalia.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46052-luna-novias-tesalia.html"><img src="//static.msromantic.com/101319/luna-novias-tesalia.jpg" alt="Luna novias TESALIA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2016/46052-luna-novias-tesalia.html](https://www.antebrands.com/en/luna-novias-coleccion-2016/46052-luna-novias-tesalia.html)

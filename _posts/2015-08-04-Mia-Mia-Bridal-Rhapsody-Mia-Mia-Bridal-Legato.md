@@ -9,7 +9,7 @@ tags: [Mia Mia Bridal Rhapsody]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mia-mia-bridal-rhapsody/46329-mia-mia-bridal-legato.html"><img src="//static.msromantic.com/101884/mia-mia-bridal-legato.jpg" alt="Mia Mia Bridal Legato" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mia-mia-bridal-rhapsody/46329-mia-mia-bridal-legato.html"><img src="//static.msromantic.com/101884/mia-mia-bridal-legato.jpg" alt="Mia Mia Bridal Legato" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mia-mia-bridal-rhapsody/46329-mia-mia-bridal-legato.html"><img src="//static.msromantic.com/101883/mia-mia-bridal-legato.jpg" alt="Mia Mia Bridal Legato" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mia-mia-bridal-rhapsody/46329-mia-mia-bridal-legato.html](https://www.readybrides.com/en/mia-mia-bridal-rhapsody/46329-mia-mia-bridal-legato.html)
+<!-- break --><a href="https://www.antebrands.com/en/mia-mia-bridal-rhapsody/46329-mia-mia-bridal-legato.html"><img src="//static.msromantic.com/101883/mia-mia-bridal-legato.jpg" alt="Mia Mia Bridal Legato" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mia-mia-bridal-rhapsody/46329-mia-mia-bridal-legato.html](https://www.antebrands.com/en/mia-mia-bridal-rhapsody/46329-mia-mia-bridal-legato.html)

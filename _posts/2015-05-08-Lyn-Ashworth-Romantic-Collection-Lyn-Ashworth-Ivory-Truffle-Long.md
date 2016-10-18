@@ -9,7 +9,7 @@ tags: [Lyn Ashworth Romantic Collection]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/lyn-ashworth-romantic-collection/45307-lyn-ashworth-ivory-truffle-long.html"><img src="//static.msromantic.com/98927/lyn-ashworth-ivory-truffle-long.jpg" alt="Lyn Ashworth Ivory Truffle Long" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lyn-ashworth-romantic-collection/45307-lyn-ashworth-ivory-truffle-long.html"><img src="//static.msromantic.com/98927/lyn-ashworth-ivory-truffle-long.jpg" alt="Lyn Ashworth Ivory Truffle Long" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/lyn-ashworth-romantic-collection/45307-lyn-ashworth-ivory-truffle-long.html"><img src="//static.msromantic.com/98926/lyn-ashworth-ivory-truffle-long.jpg" alt="Lyn Ashworth Ivory Truffle Long" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/lyn-ashworth-romantic-collection/45307-lyn-ashworth-ivory-truffle-long.html](https://www.readybrides.com/en/lyn-ashworth-romantic-collection/45307-lyn-ashworth-ivory-truffle-long.html)
+<!-- break --><a href="https://www.antebrands.com/en/lyn-ashworth-romantic-collection/45307-lyn-ashworth-ivory-truffle-long.html"><img src="//static.msromantic.com/98926/lyn-ashworth-ivory-truffle-long.jpg" alt="Lyn Ashworth Ivory Truffle Long" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/lyn-ashworth-romantic-collection/45307-lyn-ashworth-ivory-truffle-long.html](https://www.antebrands.com/en/lyn-ashworth-romantic-collection/45307-lyn-ashworth-ivory-truffle-long.html)

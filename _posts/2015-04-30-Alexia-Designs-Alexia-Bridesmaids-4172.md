@@ -9,7 +9,7 @@ tags: [Alexia Designs Alexia Bridesmaids]
 Just **$139.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alexia-designs-alexia-bridesmaids/46700-alexia-designs-alexia-bridesmaids-4172.html"><img src="//static.msromantic.com/102596/alexia-designs-alexia-bridesmaids-4172.jpg" alt="Alexia Designs Alexia Bridesmaids  4172" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alexia-designs-alexia-bridesmaids/46700-alexia-designs-alexia-bridesmaids-4172.html"><img src="//static.msromantic.com/102596/alexia-designs-alexia-bridesmaids-4172.jpg" alt="Alexia Designs Alexia Bridesmaids  4172" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/alexia-designs-alexia-bridesmaids/46700-alexia-designs-alexia-bridesmaids-4172.html](https://www.readybrides.com/en/alexia-designs-alexia-bridesmaids/46700-alexia-designs-alexia-bridesmaids-4172.html)
+Buy it: [https://www.antebrands.com/en/alexia-designs-alexia-bridesmaids/46700-alexia-designs-alexia-bridesmaids-4172.html](https://www.antebrands.com/en/alexia-designs-alexia-bridesmaids/46700-alexia-designs-alexia-bridesmaids-4172.html)

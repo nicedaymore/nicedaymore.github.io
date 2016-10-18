@@ -9,7 +9,7 @@ tags: [Romona Keveza fall 2014-1]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romona-keveza-fall-2014-1/47132-romona-keveza-romona-keveza-luxe-rtw-style-e1480.html"><img src="//static.msromantic.com/103280/romona-keveza-romona-keveza-luxe-rtw-style-e1480.jpg" alt="Romona Keveza Romona Keveza Luxe RTW Style E1480" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romona-keveza-fall-2014-1/47132-romona-keveza-romona-keveza-luxe-rtw-style-e1480.html"><img src="//static.msromantic.com/103280/romona-keveza-romona-keveza-luxe-rtw-style-e1480.jpg" alt="Romona Keveza Romona Keveza Luxe RTW Style E1480" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romona-keveza-fall-2014-1/47132-romona-keveza-romona-keveza-luxe-rtw-style-e1480.html](https://www.readybrides.com/en/romona-keveza-fall-2014-1/47132-romona-keveza-romona-keveza-luxe-rtw-style-e1480.html)
+Buy it: [https://www.antebrands.com/en/romona-keveza-fall-2014-1/47132-romona-keveza-romona-keveza-luxe-rtw-style-e1480.html](https://www.antebrands.com/en/romona-keveza-fall-2014-1/47132-romona-keveza-romona-keveza-luxe-rtw-style-e1480.html)

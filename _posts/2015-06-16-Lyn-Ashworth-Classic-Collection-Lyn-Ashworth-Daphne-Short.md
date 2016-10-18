@@ -9,7 +9,7 @@ tags: [Lyn Ashworth Classic Collection]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45346-lyn-ashworth-daphne-short.html"><img src="//static.msromantic.com/99026/lyn-ashworth-daphne-short.jpg" alt="Lyn Ashworth Daphne Short" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45346-lyn-ashworth-daphne-short.html"><img src="//static.msromantic.com/99026/lyn-ashworth-daphne-short.jpg" alt="Lyn Ashworth Daphne Short" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45346-lyn-ashworth-daphne-short.html"><img src="//static.msromantic.com/99025/lyn-ashworth-daphne-short.jpg" alt="Lyn Ashworth Daphne Short" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/lyn-ashworth-classic-collection/45346-lyn-ashworth-daphne-short.html](https://www.readybrides.com/en/lyn-ashworth-classic-collection/45346-lyn-ashworth-daphne-short.html)
+<!-- break --><a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45346-lyn-ashworth-daphne-short.html"><img src="//static.msromantic.com/99025/lyn-ashworth-daphne-short.jpg" alt="Lyn Ashworth Daphne Short" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/lyn-ashworth-classic-collection/45346-lyn-ashworth-daphne-short.html](https://www.antebrands.com/en/lyn-ashworth-classic-collection/45346-lyn-ashworth-daphne-short.html)

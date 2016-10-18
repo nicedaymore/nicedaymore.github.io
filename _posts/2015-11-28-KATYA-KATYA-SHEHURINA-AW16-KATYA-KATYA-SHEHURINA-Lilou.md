@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA AW16]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-aw16/43643-katya-katya-shehurina-lilou.html"><img src="//static.msromantic.com/95007/katya-katya-shehurina-lilou.jpg" alt="KATYA KATYA SHEHURINA Lilou" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-aw16/43643-katya-katya-shehurina-lilou.html"><img src="//static.msromantic.com/95007/katya-katya-shehurina-lilou.jpg" alt="KATYA KATYA SHEHURINA Lilou" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-aw16/43643-katya-katya-shehurina-lilou.html](https://www.readybrides.com/en/katya-katya-shehurina-aw16/43643-katya-katya-shehurina-lilou.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-aw16/43643-katya-katya-shehurina-lilou.html](https://www.antebrands.com/en/katya-katya-shehurina-aw16/43643-katya-katya-shehurina-lilou.html)

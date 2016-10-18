@@ -9,7 +9,7 @@ tags: [Marylise Collection16]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/marylise-collection16/46249-marylise-flynn.html"><img src="//static.msromantic.com/101725/marylise-flynn.jpg" alt="Marylise FLYNN" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marylise-collection16/46249-marylise-flynn.html"><img src="//static.msromantic.com/101725/marylise-flynn.jpg" alt="Marylise FLYNN" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/marylise-collection16/46249-marylise-flynn.html](https://www.readybrides.com/en/marylise-collection16/46249-marylise-flynn.html)
+Buy it: [https://www.antebrands.com/en/marylise-collection16/46249-marylise-flynn.html](https://www.antebrands.com/en/marylise-collection16/46249-marylise-flynn.html)

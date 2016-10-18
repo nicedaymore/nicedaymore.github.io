@@ -9,7 +9,7 @@ tags: [The Couture Gallery Cocktail Collection]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-couture-gallery-cocktail-collection/47051-the-couture-gallery-cocktail-no-2.html"><img src="//static.msromantic.com/103186/the-couture-gallery-cocktail-no-2.jpg" alt="The Couture Gallery Cocktail No. 2" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-couture-gallery-cocktail-collection/47051-the-couture-gallery-cocktail-no-2.html"><img src="//static.msromantic.com/103186/the-couture-gallery-cocktail-no-2.jpg" alt="The Couture Gallery Cocktail No. 2" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-couture-gallery-cocktail-collection/47051-the-couture-gallery-cocktail-no-2.html](https://www.readybrides.com/en/the-couture-gallery-cocktail-collection/47051-the-couture-gallery-cocktail-no-2.html)
+Buy it: [https://www.antebrands.com/en/the-couture-gallery-cocktail-collection/47051-the-couture-gallery-cocktail-no-2.html](https://www.antebrands.com/en/the-couture-gallery-cocktail-collection/47051-the-couture-gallery-cocktail-no-2.html)

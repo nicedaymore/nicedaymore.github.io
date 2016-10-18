@@ -9,7 +9,7 @@ tags: [The Couture Gallery Couture Gowns]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-couture-gallery-couture-gowns/47060-the-couture-gallery-maasai-queen.html"><img src="//static.msromantic.com/103195/the-couture-gallery-maasai-queen.jpg" alt="The Couture Gallery Maasai Queen" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-couture-gallery-couture-gowns/47060-the-couture-gallery-maasai-queen.html"><img src="//static.msromantic.com/103195/the-couture-gallery-maasai-queen.jpg" alt="The Couture Gallery Maasai Queen" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-couture-gallery-couture-gowns/47060-the-couture-gallery-maasai-queen.html](https://www.readybrides.com/en/the-couture-gallery-couture-gowns/47060-the-couture-gallery-maasai-queen.html)
+Buy it: [https://www.antebrands.com/en/the-couture-gallery-couture-gowns/47060-the-couture-gallery-maasai-queen.html](https://www.antebrands.com/en/the-couture-gallery-couture-gowns/47060-the-couture-gallery-maasai-queen.html)

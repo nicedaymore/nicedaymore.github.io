@@ -9,7 +9,7 @@ tags: [Lyn Ashworth Classic Collection]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45344-lyn-ashworth-gwendoline.html"><img src="//static.msromantic.com/99022/lyn-ashworth-gwendoline.jpg" alt="Lyn Ashworth Gwendoline" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45344-lyn-ashworth-gwendoline.html"><img src="//static.msromantic.com/99022/lyn-ashworth-gwendoline.jpg" alt="Lyn Ashworth Gwendoline" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/lyn-ashworth-classic-collection/45344-lyn-ashworth-gwendoline.html](https://www.readybrides.com/en/lyn-ashworth-classic-collection/45344-lyn-ashworth-gwendoline.html)
+Buy it: [https://www.antebrands.com/en/lyn-ashworth-classic-collection/45344-lyn-ashworth-gwendoline.html](https://www.antebrands.com/en/lyn-ashworth-classic-collection/45344-lyn-ashworth-gwendoline.html)

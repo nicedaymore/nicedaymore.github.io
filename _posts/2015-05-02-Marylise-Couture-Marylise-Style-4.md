@@ -9,7 +9,7 @@ tags: [Marylise Couture]
 Just **$439.99**
 ### 
 
-<a href="https://www.readybrides.com/en/marylise-couture/46235-marylise-style-4.html"><img src="//static.msromantic.com/101711/marylise-style-4.jpg" alt="Marylise Style 4" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marylise-couture/46235-marylise-style-4.html"><img src="//static.msromantic.com/101711/marylise-style-4.jpg" alt="Marylise Style 4" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/marylise-couture/46235-marylise-style-4.html](https://www.readybrides.com/en/marylise-couture/46235-marylise-style-4.html)
+Buy it: [https://www.antebrands.com/en/marylise-couture/46235-marylise-style-4.html](https://www.antebrands.com/en/marylise-couture/46235-marylise-style-4.html)

@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA AW16]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-aw16/43633-katya-katya-shehurina-sibilla.html"><img src="//static.msromantic.com/94997/katya-katya-shehurina-sibilla.jpg" alt="KATYA KATYA SHEHURINA Sibilla" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-aw16/43633-katya-katya-shehurina-sibilla.html"><img src="//static.msromantic.com/94997/katya-katya-shehurina-sibilla.jpg" alt="KATYA KATYA SHEHURINA Sibilla" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-aw16/43633-katya-katya-shehurina-sibilla.html](https://www.readybrides.com/en/katya-katya-shehurina-aw16/43633-katya-katya-shehurina-sibilla.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-aw16/43633-katya-katya-shehurina-sibilla.html](https://www.antebrands.com/en/katya-katya-shehurina-aw16/43633-katya-katya-shehurina-sibilla.html)

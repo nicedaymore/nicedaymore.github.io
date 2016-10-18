@@ -9,7 +9,7 @@ tags: [Lyn Ashworth Classic Collection]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45347-lyn-ashworth-daphne-long.html"><img src="//static.msromantic.com/99027/lyn-ashworth-daphne-long.jpg" alt="Lyn Ashworth Daphne Long" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45347-lyn-ashworth-daphne-long.html"><img src="//static.msromantic.com/99027/lyn-ashworth-daphne-long.jpg" alt="Lyn Ashworth Daphne Long" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/lyn-ashworth-classic-collection/45347-lyn-ashworth-daphne-long.html](https://www.readybrides.com/en/lyn-ashworth-classic-collection/45347-lyn-ashworth-daphne-long.html)
+Buy it: [https://www.antebrands.com/en/lyn-ashworth-classic-collection/45347-lyn-ashworth-daphne-long.html](https://www.antebrands.com/en/lyn-ashworth-classic-collection/45347-lyn-ashworth-daphne-long.html)

@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2015]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46143-luna-novias-8s126-lausana.html"><img src="//static.msromantic.com/101517/luna-novias-8s126-lausana.jpg" alt="Luna novias 8S126 LAUSANA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46143-luna-novias-8s126-lausana.html"><img src="//static.msromantic.com/101517/luna-novias-8s126-lausana.jpg" alt="Luna novias 8S126 LAUSANA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46143-luna-novias-8s126-lausana.html"><img src="//static.msromantic.com/101516/luna-novias-8s126-lausana.jpg" alt="Luna novias 8S126 LAUSANA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2015/46143-luna-novias-8s126-lausana.html](https://www.readybrides.com/en/luna-novias-coleccion-2015/46143-luna-novias-8s126-lausana.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46143-luna-novias-8s126-lausana.html"><img src="//static.msromantic.com/101516/luna-novias-8s126-lausana.jpg" alt="Luna novias 8S126 LAUSANA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2015/46143-luna-novias-8s126-lausana.html](https://www.antebrands.com/en/luna-novias-coleccion-2015/46143-luna-novias-8s126-lausana.html)

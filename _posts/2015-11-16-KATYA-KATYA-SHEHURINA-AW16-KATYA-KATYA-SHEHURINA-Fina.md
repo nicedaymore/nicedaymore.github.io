@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA AW16]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-aw16/43631-katya-katya-shehurina-fina.html"><img src="//static.msromantic.com/94995/katya-katya-shehurina-fina.jpg" alt="KATYA KATYA SHEHURINA Fina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-aw16/43631-katya-katya-shehurina-fina.html"><img src="//static.msromantic.com/94995/katya-katya-shehurina-fina.jpg" alt="KATYA KATYA SHEHURINA Fina" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-aw16/43631-katya-katya-shehurina-fina.html](https://www.readybrides.com/en/katya-katya-shehurina-aw16/43631-katya-katya-shehurina-fina.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-aw16/43631-katya-katya-shehurina-fina.html](https://www.antebrands.com/en/katya-katya-shehurina-aw16/43631-katya-katya-shehurina-fina.html)

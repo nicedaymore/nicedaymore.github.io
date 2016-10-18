@@ -9,7 +9,7 @@ tags: [Marylise Collection16]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/marylise-collection16/46245-marylise-apolinnaire.html"><img src="//static.msromantic.com/101721/marylise-apolinnaire.jpg" alt="Marylise APOLINNAIRE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marylise-collection16/46245-marylise-apolinnaire.html"><img src="//static.msromantic.com/101721/marylise-apolinnaire.jpg" alt="Marylise APOLINNAIRE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/marylise-collection16/46245-marylise-apolinnaire.html](https://www.readybrides.com/en/marylise-collection16/46245-marylise-apolinnaire.html)
+Buy it: [https://www.antebrands.com/en/marylise-collection16/46245-marylise-apolinnaire.html](https://www.antebrands.com/en/marylise-collection16/46245-marylise-apolinnaire.html)

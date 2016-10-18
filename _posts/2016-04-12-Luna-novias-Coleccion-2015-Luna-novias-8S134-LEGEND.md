@@ -9,8 +9,8 @@ tags: [Luna novias Coleccion 2015]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html"><img src="//static.msromantic.com/101454/luna-novias-8s134-legend.jpg" alt="Luna novias 8S134 LEGEND" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html"><img src="//static.msromantic.com/101454/luna-novias-8s134-legend.jpg" alt="Luna novias 8S134 LEGEND" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html"><img src="//static.msromantic.com/101455/luna-novias-8s134-legend.jpg" alt="Luna novias 8S134 LEGEND" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html"><img src="//static.msromantic.com/101453/luna-novias-8s134-legend.jpg" alt="Luna novias 8S134 LEGEND" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html](https://www.readybrides.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html"><img src="//static.msromantic.com/101455/luna-novias-8s134-legend.jpg" alt="Luna novias 8S134 LEGEND" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html"><img src="//static.msromantic.com/101453/luna-novias-8s134-legend.jpg" alt="Luna novias 8S134 LEGEND" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html](https://www.antebrands.com/en/luna-novias-coleccion-2015/46114-luna-novias-8s134-legend.html)

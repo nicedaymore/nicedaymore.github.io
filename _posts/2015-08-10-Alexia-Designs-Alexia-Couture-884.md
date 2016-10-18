@@ -9,7 +9,7 @@ tags: [Alexia Designs Alexia Couture]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alexia-designs-alexia-couture/46802-alexia-designs-alexia-couture-884.html"><img src="//static.msromantic.com/102698/alexia-designs-alexia-couture-884.jpg" alt="Alexia Designs Alexia Couture  884" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alexia-designs-alexia-couture/46802-alexia-designs-alexia-couture-884.html"><img src="//static.msromantic.com/102698/alexia-designs-alexia-couture-884.jpg" alt="Alexia Designs Alexia Couture  884" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/alexia-designs-alexia-couture/46802-alexia-designs-alexia-couture-884.html](https://www.readybrides.com/en/alexia-designs-alexia-couture/46802-alexia-designs-alexia-couture-884.html)
+Buy it: [https://www.antebrands.com/en/alexia-designs-alexia-couture/46802-alexia-designs-alexia-couture-884.html](https://www.antebrands.com/en/alexia-designs-alexia-couture/46802-alexia-designs-alexia-couture-884.html)

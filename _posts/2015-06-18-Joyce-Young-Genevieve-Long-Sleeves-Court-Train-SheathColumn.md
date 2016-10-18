@@ -9,7 +9,7 @@ tags: [Joyce Young ,Joyce Young,Sheath/Column,Court Train,Long Sleeves]
 Just **$488.00**
 ###   Long Sleeves Court Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Joyce Young</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/joyce-young-/45815-joyce-young-genevieve.html"><img src="//static.msromantic.com/100652/joyce-young-genevieve.jpg" alt="Joyce Young Genevieve" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/joyce-young-/45815-joyce-young-genevieve.html"><img src="//static.msromantic.com/100652/joyce-young-genevieve.jpg" alt="Joyce Young Genevieve" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/joyce-young-/45815-joyce-young-genevieve.html"><img src="//static.msromantic.com/100651/joyce-young-genevieve.jpg" alt="Joyce Young Genevieve" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/joyce-young-/45815-joyce-young-genevieve.html](https://www.readybrides.com/en/joyce-young-/45815-joyce-young-genevieve.html)
+<!-- break --><a href="https://www.antebrands.com/en/joyce-young-/45815-joyce-young-genevieve.html"><img src="//static.msromantic.com/100651/joyce-young-genevieve.jpg" alt="Joyce Young Genevieve" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/joyce-young-/45815-joyce-young-genevieve.html](https://www.antebrands.com/en/joyce-young-/45815-joyce-young-genevieve.html)

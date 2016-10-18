@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA Venice]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-venice/43598-katya-katya-shehurina-mona.html"><img src="//static.msromantic.com/94962/katya-katya-shehurina-mona.jpg" alt="KATYA KATYA SHEHURINA Mona" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-venice/43598-katya-katya-shehurina-mona.html"><img src="//static.msromantic.com/94962/katya-katya-shehurina-mona.jpg" alt="KATYA KATYA SHEHURINA Mona" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-venice/43598-katya-katya-shehurina-mona.html](https://www.readybrides.com/en/katya-katya-shehurina-venice/43598-katya-katya-shehurina-mona.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-venice/43598-katya-katya-shehurina-mona.html](https://www.antebrands.com/en/katya-katya-shehurina-venice/43598-katya-katya-shehurina-mona.html)

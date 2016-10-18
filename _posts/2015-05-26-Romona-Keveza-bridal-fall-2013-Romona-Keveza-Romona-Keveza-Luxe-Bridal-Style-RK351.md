@@ -9,7 +9,7 @@ tags: [Romona Keveza bridal fall 2013]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romona-keveza-bridal-fall-2013/47193-romona-keveza-romona-keveza-luxe-bridal-style-rk351.html"><img src="//static.msromantic.com/103357/romona-keveza-romona-keveza-luxe-bridal-style-rk351.jpg" alt="Romona Keveza Romona Keveza Luxe Bridal Style RK351" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romona-keveza-bridal-fall-2013/47193-romona-keveza-romona-keveza-luxe-bridal-style-rk351.html"><img src="//static.msromantic.com/103357/romona-keveza-romona-keveza-luxe-bridal-style-rk351.jpg" alt="Romona Keveza Romona Keveza Luxe Bridal Style RK351" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romona-keveza-bridal-fall-2013/47193-romona-keveza-romona-keveza-luxe-bridal-style-rk351.html](https://www.readybrides.com/en/romona-keveza-bridal-fall-2013/47193-romona-keveza-romona-keveza-luxe-bridal-style-rk351.html)
+Buy it: [https://www.antebrands.com/en/romona-keveza-bridal-fall-2013/47193-romona-keveza-romona-keveza-luxe-bridal-style-rk351.html](https://www.antebrands.com/en/romona-keveza-bridal-fall-2013/47193-romona-keveza-romona-keveza-luxe-bridal-style-rk351.html)

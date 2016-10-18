@@ -9,7 +9,7 @@ tags: [The Couture Gallery Cocktail Collection]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-couture-gallery-cocktail-collection/47048-the-couture-gallery-white-cosmo.html"><img src="//static.msromantic.com/103182/the-couture-gallery-white-cosmo.jpg" alt="The Couture Gallery White Cosmo" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-couture-gallery-cocktail-collection/47048-the-couture-gallery-white-cosmo.html"><img src="//static.msromantic.com/103182/the-couture-gallery-white-cosmo.jpg" alt="The Couture Gallery White Cosmo" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-couture-gallery-cocktail-collection/47048-the-couture-gallery-white-cosmo.html](https://www.readybrides.com/en/the-couture-gallery-cocktail-collection/47048-the-couture-gallery-white-cosmo.html)
+Buy it: [https://www.antebrands.com/en/the-couture-gallery-cocktail-collection/47048-the-couture-gallery-white-cosmo.html](https://www.antebrands.com/en/the-couture-gallery-cocktail-collection/47048-the-couture-gallery-white-cosmo.html)

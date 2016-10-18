@@ -9,7 +9,7 @@ tags: [Le Spose di Giò Short]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-spose-di-gio-short/43312-le-spose-di-gio-cr7.html"><img src="//static.msromantic.com/94671/le-spose-di-gio-cr7.jpg" alt="Le Spose di Giò CR_7" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-spose-di-gio-short/43312-le-spose-di-gio-cr7.html"><img src="//static.msromantic.com/94671/le-spose-di-gio-cr7.jpg" alt="Le Spose di Giò CR_7" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-spose-di-gio-short/43312-le-spose-di-gio-cr7.html](https://www.readybrides.com/en/le-spose-di-gio-short/43312-le-spose-di-gio-cr7.html)
+Buy it: [https://www.antebrands.com/en/le-spose-di-gio-short/43312-le-spose-di-gio-cr7.html](https://www.antebrands.com/en/le-spose-di-gio-short/43312-le-spose-di-gio-cr7.html)

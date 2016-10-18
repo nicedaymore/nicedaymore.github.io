@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA AW16]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-aw16/43632-katya-katya-shehurina-pietra.html"><img src="//static.msromantic.com/94996/katya-katya-shehurina-pietra.jpg" alt="KATYA KATYA SHEHURINA Pietra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-aw16/43632-katya-katya-shehurina-pietra.html"><img src="//static.msromantic.com/94996/katya-katya-shehurina-pietra.jpg" alt="KATYA KATYA SHEHURINA Pietra" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-aw16/43632-katya-katya-shehurina-pietra.html](https://www.readybrides.com/en/katya-katya-shehurina-aw16/43632-katya-katya-shehurina-pietra.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-aw16/43632-katya-katya-shehurina-pietra.html](https://www.antebrands.com/en/katya-katya-shehurina-aw16/43632-katya-katya-shehurina-pietra.html)

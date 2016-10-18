@@ -9,7 +9,7 @@ tags: [Vania Romoff SS2015]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vania-romoff-ss2015/43331-vania-romoff-ss2015-style-11.html"><img src="//static.msromantic.com/94691/vania-romoff-ss2015-style-11.jpg" alt="Vania Romoff SS2015 Style 11" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vania-romoff-ss2015/43331-vania-romoff-ss2015-style-11.html"><img src="//static.msromantic.com/94691/vania-romoff-ss2015-style-11.jpg" alt="Vania Romoff SS2015 Style 11" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vania-romoff-ss2015/43331-vania-romoff-ss2015-style-11.html](https://www.readybrides.com/en/vania-romoff-ss2015/43331-vania-romoff-ss2015-style-11.html)
+Buy it: [https://www.antebrands.com/en/vania-romoff-ss2015/43331-vania-romoff-ss2015-style-11.html](https://www.antebrands.com/en/vania-romoff-ss2015/43331-vania-romoff-ss2015-style-11.html)

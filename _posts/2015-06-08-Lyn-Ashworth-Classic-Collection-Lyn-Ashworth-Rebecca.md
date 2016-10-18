@@ -9,7 +9,7 @@ tags: [Lyn Ashworth Classic Collection]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45338-lyn-ashworth-rebecca.html"><img src="//static.msromantic.com/99011/lyn-ashworth-rebecca.jpg" alt="Lyn Ashworth Rebecca" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45338-lyn-ashworth-rebecca.html"><img src="//static.msromantic.com/99011/lyn-ashworth-rebecca.jpg" alt="Lyn Ashworth Rebecca" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/lyn-ashworth-classic-collection/45338-lyn-ashworth-rebecca.html](https://www.readybrides.com/en/lyn-ashworth-classic-collection/45338-lyn-ashworth-rebecca.html)
+Buy it: [https://www.antebrands.com/en/lyn-ashworth-classic-collection/45338-lyn-ashworth-rebecca.html](https://www.antebrands.com/en/lyn-ashworth-classic-collection/45338-lyn-ashworth-rebecca.html)

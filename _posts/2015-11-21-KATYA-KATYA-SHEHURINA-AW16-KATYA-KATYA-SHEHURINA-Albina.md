@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA AW16]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-aw16/43636-katya-katya-shehurina-albina.html"><img src="//static.msromantic.com/95000/katya-katya-shehurina-albina.jpg" alt="KATYA KATYA SHEHURINA Albina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-aw16/43636-katya-katya-shehurina-albina.html"><img src="//static.msromantic.com/95000/katya-katya-shehurina-albina.jpg" alt="KATYA KATYA SHEHURINA Albina" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-aw16/43636-katya-katya-shehurina-albina.html](https://www.readybrides.com/en/katya-katya-shehurina-aw16/43636-katya-katya-shehurina-albina.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-aw16/43636-katya-katya-shehurina-albina.html](https://www.antebrands.com/en/katya-katya-shehurina-aw16/43636-katya-katya-shehurina-albina.html)

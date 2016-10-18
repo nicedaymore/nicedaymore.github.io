@@ -9,7 +9,7 @@ tags: [Lyn Ashworth Classic Collection]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45341-lyn-ashworth-mitzi-long.html"><img src="//static.msromantic.com/99017/lyn-ashworth-mitzi-long.jpg" alt="Lyn Ashworth Mitzi Long" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45341-lyn-ashworth-mitzi-long.html"><img src="//static.msromantic.com/99017/lyn-ashworth-mitzi-long.jpg" alt="Lyn Ashworth Mitzi Long" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/lyn-ashworth-classic-collection/45341-lyn-ashworth-mitzi-long.html](https://www.readybrides.com/en/lyn-ashworth-classic-collection/45341-lyn-ashworth-mitzi-long.html)
+Buy it: [https://www.antebrands.com/en/lyn-ashworth-classic-collection/45341-lyn-ashworth-mitzi-long.html](https://www.antebrands.com/en/lyn-ashworth-classic-collection/45341-lyn-ashworth-mitzi-long.html)

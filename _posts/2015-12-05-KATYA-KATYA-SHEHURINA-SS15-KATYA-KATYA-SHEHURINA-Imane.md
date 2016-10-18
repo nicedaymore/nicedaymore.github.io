@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA SS15]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-ss15/43650-katya-katya-shehurina-imane.html"><img src="//static.msromantic.com/95014/katya-katya-shehurina-imane.jpg" alt="KATYA KATYA SHEHURINA Imane" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-ss15/43650-katya-katya-shehurina-imane.html"><img src="//static.msromantic.com/95014/katya-katya-shehurina-imane.jpg" alt="KATYA KATYA SHEHURINA Imane" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-ss15/43650-katya-katya-shehurina-imane.html](https://www.readybrides.com/en/katya-katya-shehurina-ss15/43650-katya-katya-shehurina-imane.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-ss15/43650-katya-katya-shehurina-imane.html](https://www.antebrands.com/en/katya-katya-shehurina-ss15/43650-katya-katya-shehurina-imane.html)

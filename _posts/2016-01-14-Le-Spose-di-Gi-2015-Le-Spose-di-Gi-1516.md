@@ -9,7 +9,7 @@ tags: [Le Spose di Giò 2015]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-spose-di-gio-2015/43223-le-spose-di-gio-1516.html"><img src="//static.msromantic.com/94575/le-spose-di-gio-1516.jpg" alt="Le Spose di Giò 15_16" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-spose-di-gio-2015/43223-le-spose-di-gio-1516.html"><img src="//static.msromantic.com/94575/le-spose-di-gio-1516.jpg" alt="Le Spose di Giò 15_16" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-spose-di-gio-2015/43223-le-spose-di-gio-1516.html](https://www.readybrides.com/en/le-spose-di-gio-2015/43223-le-spose-di-gio-1516.html)
+Buy it: [https://www.antebrands.com/en/le-spose-di-gio-2015/43223-le-spose-di-gio-1516.html](https://www.antebrands.com/en/le-spose-di-gio-2015/43223-le-spose-di-gio-1516.html)

@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA AW16]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-aw16/43640-katya-katya-shehurina-stella.html"><img src="//static.msromantic.com/95004/katya-katya-shehurina-stella.jpg" alt="KATYA KATYA SHEHURINA Stella" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-aw16/43640-katya-katya-shehurina-stella.html"><img src="//static.msromantic.com/95004/katya-katya-shehurina-stella.jpg" alt="KATYA KATYA SHEHURINA Stella" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-aw16/43640-katya-katya-shehurina-stella.html](https://www.readybrides.com/en/katya-katya-shehurina-aw16/43640-katya-katya-shehurina-stella.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-aw16/43640-katya-katya-shehurina-stella.html](https://www.antebrands.com/en/katya-katya-shehurina-aw16/43640-katya-katya-shehurina-stella.html)

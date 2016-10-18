@@ -9,7 +9,7 @@ tags: [Marylise Collection16]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/marylise-collection16/46252-marylise-jessy.html"><img src="//static.msromantic.com/101728/marylise-jessy.jpg" alt="Marylise JESSY" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marylise-collection16/46252-marylise-jessy.html"><img src="//static.msromantic.com/101728/marylise-jessy.jpg" alt="Marylise JESSY" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/marylise-collection16/46252-marylise-jessy.html](https://www.readybrides.com/en/marylise-collection16/46252-marylise-jessy.html)
+Buy it: [https://www.antebrands.com/en/marylise-collection16/46252-marylise-jessy.html](https://www.antebrands.com/en/marylise-collection16/46252-marylise-jessy.html)

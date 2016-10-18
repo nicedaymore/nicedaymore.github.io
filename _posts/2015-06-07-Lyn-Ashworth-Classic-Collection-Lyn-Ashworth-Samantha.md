@@ -9,7 +9,7 @@ tags: [Lyn Ashworth Classic Collection]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45337-lyn-ashworth-samantha.html"><img src="//static.msromantic.com/99010/lyn-ashworth-samantha.jpg" alt="Lyn Ashworth Samantha" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45337-lyn-ashworth-samantha.html"><img src="//static.msromantic.com/99010/lyn-ashworth-samantha.jpg" alt="Lyn Ashworth Samantha" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45337-lyn-ashworth-samantha.html"><img src="//static.msromantic.com/99009/lyn-ashworth-samantha.jpg" alt="Lyn Ashworth Samantha" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/lyn-ashworth-classic-collection/45337-lyn-ashworth-samantha.html](https://www.readybrides.com/en/lyn-ashworth-classic-collection/45337-lyn-ashworth-samantha.html)
+<!-- break --><a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45337-lyn-ashworth-samantha.html"><img src="//static.msromantic.com/99009/lyn-ashworth-samantha.jpg" alt="Lyn Ashworth Samantha" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/lyn-ashworth-classic-collection/45337-lyn-ashworth-samantha.html](https://www.antebrands.com/en/lyn-ashworth-classic-collection/45337-lyn-ashworth-samantha.html)

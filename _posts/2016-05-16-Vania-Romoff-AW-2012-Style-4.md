@@ -9,7 +9,7 @@ tags: [Vania Romoff AW 2012]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vania-romoff-aw-2012/43346-vania-romoff-aw-2012-style-4.html"><img src="//static.msromantic.com/94709/vania-romoff-aw-2012-style-4.jpg" alt="Vania Romoff AW 2012 Style 4" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vania-romoff-aw-2012/43346-vania-romoff-aw-2012-style-4.html"><img src="//static.msromantic.com/94709/vania-romoff-aw-2012-style-4.jpg" alt="Vania Romoff AW 2012 Style 4" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/vania-romoff-aw-2012/43346-vania-romoff-aw-2012-style-4.html](https://www.readybrides.com/en/vania-romoff-aw-2012/43346-vania-romoff-aw-2012-style-4.html)
+Buy it: [https://www.antebrands.com/en/vania-romoff-aw-2012/43346-vania-romoff-aw-2012-style-4.html](https://www.antebrands.com/en/vania-romoff-aw-2012/43346-vania-romoff-aw-2012-style-4.html)

@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA Venice]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-venice/43601-katya-katya-shehurina-theresa.html"><img src="//static.msromantic.com/94965/katya-katya-shehurina-theresa.jpg" alt="KATYA KATYA SHEHURINA Theresa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-venice/43601-katya-katya-shehurina-theresa.html"><img src="//static.msromantic.com/94965/katya-katya-shehurina-theresa.jpg" alt="KATYA KATYA SHEHURINA Theresa" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-venice/43601-katya-katya-shehurina-theresa.html](https://www.readybrides.com/en/katya-katya-shehurina-venice/43601-katya-katya-shehurina-theresa.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-venice/43601-katya-katya-shehurina-theresa.html](https://www.antebrands.com/en/katya-katya-shehurina-venice/43601-katya-katya-shehurina-theresa.html)

@@ -9,10 +9,10 @@ tags: [JLM Couture-Alvina Valenta ,JLM Couture-Alvina Valenta,Aline/Princess ,Sp
 Just **$449.99**
 ###   Sleeveless Court Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>JLM Couture-Alvina Valenta</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Spaghetti Straps</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103768/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103768/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103769/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103770/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103771/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103767/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html](https://www.readybrides.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html)
+<!-- break --><a href="https://www.antebrands.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103769/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103770/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103771/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html"><img src="//static.msromantic.com/103767/alvina-valenta-style-av9409.jpg" alt="Alvina Valenta Style AV9409" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html](https://www.antebrands.com/en/jlm-couture-alvina-valenta-/47422-alvina-valenta-style-av9409.html)

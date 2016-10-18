@@ -9,7 +9,7 @@ tags: [Matilde Cano]
 Just **$349.99**
 ###      
 <table><tr><td>BRANDS</td><td>Matilde Cano</td></tr></table>
-<a href="https://www.readybrides.com/en/matilde-cano/46283-matilde-cano-style-23.html"><img src="//static.msromantic.com/101763/matilde-cano-style-23.jpg" alt="Matilde Cano Style 23" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/matilde-cano/46283-matilde-cano-style-23.html"><img src="//static.msromantic.com/101763/matilde-cano-style-23.jpg" alt="Matilde Cano Style 23" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/matilde-cano/46283-matilde-cano-style-23.html](https://www.readybrides.com/en/matilde-cano/46283-matilde-cano-style-23.html)
+Buy it: [https://www.antebrands.com/en/matilde-cano/46283-matilde-cano-style-23.html](https://www.antebrands.com/en/matilde-cano/46283-matilde-cano-style-23.html)

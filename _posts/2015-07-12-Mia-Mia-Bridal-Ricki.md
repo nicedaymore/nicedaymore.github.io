@@ -9,7 +9,7 @@ tags: [Mia Mia]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mia-mia/46306-mia-mia-bridal-ricki.html"><img src="//static.msromantic.com/101817/mia-mia-bridal-ricki.jpg" alt="Mia Mia Bridal Ricki" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mia-mia/46306-mia-mia-bridal-ricki.html"><img src="//static.msromantic.com/101817/mia-mia-bridal-ricki.jpg" alt="Mia Mia Bridal Ricki" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mia-mia/46306-mia-mia-bridal-ricki.html"><img src="//static.msromantic.com/101816/mia-mia-bridal-ricki.jpg" alt="Mia Mia Bridal Ricki" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mia-mia/46306-mia-mia-bridal-ricki.html](https://www.readybrides.com/en/mia-mia/46306-mia-mia-bridal-ricki.html)
+<!-- break --><a href="https://www.antebrands.com/en/mia-mia/46306-mia-mia-bridal-ricki.html"><img src="//static.msromantic.com/101816/mia-mia-bridal-ricki.jpg" alt="Mia Mia Bridal Ricki" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mia-mia/46306-mia-mia-bridal-ricki.html](https://www.antebrands.com/en/mia-mia/46306-mia-mia-bridal-ricki.html)

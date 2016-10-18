@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA Venice]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-venice/43604-katya-katya-shehurina-dina.html"><img src="//static.msromantic.com/94968/katya-katya-shehurina-dina.jpg" alt="KATYA KATYA SHEHURINA Dina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-venice/43604-katya-katya-shehurina-dina.html"><img src="//static.msromantic.com/94968/katya-katya-shehurina-dina.jpg" alt="KATYA KATYA SHEHURINA Dina" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-venice/43604-katya-katya-shehurina-dina.html](https://www.readybrides.com/en/katya-katya-shehurina-venice/43604-katya-katya-shehurina-dina.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-venice/43604-katya-katya-shehurina-dina.html](https://www.antebrands.com/en/katya-katya-shehurina-venice/43604-katya-katya-shehurina-dina.html)

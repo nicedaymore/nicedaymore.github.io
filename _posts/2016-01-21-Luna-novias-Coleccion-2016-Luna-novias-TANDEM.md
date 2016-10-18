@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2016]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46032-luna-novias-tandem.html"><img src="//static.msromantic.com/101279/luna-novias-tandem.jpg" alt="Luna novias TANDEM" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46032-luna-novias-tandem.html"><img src="//static.msromantic.com/101279/luna-novias-tandem.jpg" alt="Luna novias TANDEM" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46032-luna-novias-tandem.html"><img src="//static.msromantic.com/101278/luna-novias-tandem.jpg" alt="Luna novias TANDEM" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2016/46032-luna-novias-tandem.html](https://www.readybrides.com/en/luna-novias-coleccion-2016/46032-luna-novias-tandem.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46032-luna-novias-tandem.html"><img src="//static.msromantic.com/101278/luna-novias-tandem.jpg" alt="Luna novias TANDEM" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2016/46032-luna-novias-tandem.html](https://www.antebrands.com/en/luna-novias-coleccion-2016/46032-luna-novias-tandem.html)

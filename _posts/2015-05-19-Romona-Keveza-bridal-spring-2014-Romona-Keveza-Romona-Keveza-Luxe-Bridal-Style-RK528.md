@@ -9,7 +9,7 @@ tags: [Romona Keveza bridal spring 2014]
 Just **$529.99**
 ### 
 
-<a href="https://www.readybrides.com/en/romona-keveza-bridal-spring-2014/47186-romona-keveza-romona-keveza-luxe-bridal-style-rk528.html"><img src="//static.msromantic.com/103350/romona-keveza-romona-keveza-luxe-bridal-style-rk528.jpg" alt="Romona Keveza Romona Keveza Luxe Bridal Style RK528" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/romona-keveza-bridal-spring-2014/47186-romona-keveza-romona-keveza-luxe-bridal-style-rk528.html"><img src="//static.msromantic.com/103350/romona-keveza-romona-keveza-luxe-bridal-style-rk528.jpg" alt="Romona Keveza Romona Keveza Luxe Bridal Style RK528" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/romona-keveza-bridal-spring-2014/47186-romona-keveza-romona-keveza-luxe-bridal-style-rk528.html](https://www.readybrides.com/en/romona-keveza-bridal-spring-2014/47186-romona-keveza-romona-keveza-luxe-bridal-style-rk528.html)
+Buy it: [https://www.antebrands.com/en/romona-keveza-bridal-spring-2014/47186-romona-keveza-romona-keveza-luxe-bridal-style-rk528.html](https://www.antebrands.com/en/romona-keveza-bridal-spring-2014/47186-romona-keveza-romona-keveza-luxe-bridal-style-rk528.html)

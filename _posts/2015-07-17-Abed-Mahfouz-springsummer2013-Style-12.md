@@ -9,7 +9,7 @@ tags: [Abed Mahfouz spring-summer-2013]
 Just **$999.99**
 ### 
 
-<a href="https://www.readybrides.com/en/abed-mahfouz-spring-summer-2013/43509-abed-mahfouz-spring-summer-2013-style-12.html"><img src="//static.msromantic.com/94872/abed-mahfouz-spring-summer-2013-style-12.jpg" alt="Abed Mahfouz spring-summer-2013 Style 12" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/abed-mahfouz-spring-summer-2013/43509-abed-mahfouz-spring-summer-2013-style-12.html"><img src="//static.msromantic.com/94872/abed-mahfouz-spring-summer-2013-style-12.jpg" alt="Abed Mahfouz spring-summer-2013 Style 12" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/abed-mahfouz-spring-summer-2013/43509-abed-mahfouz-spring-summer-2013-style-12.html](https://www.readybrides.com/en/abed-mahfouz-spring-summer-2013/43509-abed-mahfouz-spring-summer-2013-style-12.html)
+Buy it: [https://www.antebrands.com/en/abed-mahfouz-spring-summer-2013/43509-abed-mahfouz-spring-summer-2013-style-12.html](https://www.antebrands.com/en/abed-mahfouz-spring-summer-2013/43509-abed-mahfouz-spring-summer-2013-style-12.html)

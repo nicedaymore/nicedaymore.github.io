@@ -9,9 +9,9 @@ tags: [BHLDN ,BHLDN,Sheath/Column,Jewel,Short/Mini,Sleeveless]
 Just **$309.99**
 ###   Sleeveless Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>BHLDN</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Jewel</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html"><img src="//static.msromantic.com/100394/bhldn-ekin-mini-dress.jpg" alt="BHLDN Ekin Mini Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html"><img src="//static.msromantic.com/100394/bhldn-ekin-mini-dress.jpg" alt="BHLDN Ekin Mini Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html"><img src="//static.msromantic.com/100395/bhldn-ekin-mini-dress.jpg" alt="BHLDN Ekin Mini Dress" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html"><img src="//static.msromantic.com/100396/bhldn-ekin-mini-dress.jpg" alt="BHLDN Ekin Mini Dress" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html"><img src="//static.msromantic.com/100393/bhldn-ekin-mini-dress.jpg" alt="BHLDN Ekin Mini Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html](https://www.readybrides.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html"><img src="//static.msromantic.com/100395/bhldn-ekin-mini-dress.jpg" alt="BHLDN Ekin Mini Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html"><img src="//static.msromantic.com/100396/bhldn-ekin-mini-dress.jpg" alt="BHLDN Ekin Mini Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html"><img src="//static.msromantic.com/100393/bhldn-ekin-mini-dress.jpg" alt="BHLDN Ekin Mini Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html](https://www.antebrands.com/en/bhldn-/45736-bhldn-ekin-mini-dress.html)

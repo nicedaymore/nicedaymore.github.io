@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA AW16]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-aw16/43624-katya-katya-shehurina-carmina.html"><img src="//static.msromantic.com/94988/katya-katya-shehurina-carmina.jpg" alt="KATYA KATYA SHEHURINA Carmina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-aw16/43624-katya-katya-shehurina-carmina.html"><img src="//static.msromantic.com/94988/katya-katya-shehurina-carmina.jpg" alt="KATYA KATYA SHEHURINA Carmina" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-aw16/43624-katya-katya-shehurina-carmina.html](https://www.readybrides.com/en/katya-katya-shehurina-aw16/43624-katya-katya-shehurina-carmina.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-aw16/43624-katya-katya-shehurina-carmina.html](https://www.antebrands.com/en/katya-katya-shehurina-aw16/43624-katya-katya-shehurina-carmina.html)

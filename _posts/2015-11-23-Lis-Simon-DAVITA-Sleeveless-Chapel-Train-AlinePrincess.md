@@ -9,7 +9,7 @@ tags: [Lis Simon ,Lis Simon,Aline/Princess ,Strapless,Chapel Train,Sleeveless]
 Just **$259.99**
 ###   Sleeveless Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Lis Simon</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/lis-simon-/44572-lis-simon-davita.html"><img src="//static.msromantic.com/97326/lis-simon-davita.jpg" alt="Lis Simon DAVITA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lis-simon-/44572-lis-simon-davita.html"><img src="//static.msromantic.com/97326/lis-simon-davita.jpg" alt="Lis Simon DAVITA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/lis-simon-/44572-lis-simon-davita.html"><img src="//static.msromantic.com/97325/lis-simon-davita.jpg" alt="Lis Simon DAVITA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/lis-simon-/44572-lis-simon-davita.html](https://www.readybrides.com/en/lis-simon-/44572-lis-simon-davita.html)
+<!-- break --><a href="https://www.antebrands.com/en/lis-simon-/44572-lis-simon-davita.html"><img src="//static.msromantic.com/97325/lis-simon-davita.jpg" alt="Lis Simon DAVITA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/lis-simon-/44572-lis-simon-davita.html](https://www.antebrands.com/en/lis-simon-/44572-lis-simon-davita.html)

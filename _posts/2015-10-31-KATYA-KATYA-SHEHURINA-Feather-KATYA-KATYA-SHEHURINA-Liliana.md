@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA Feather]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-feather/43615-katya-katya-shehurina-liliana.html"><img src="//static.msromantic.com/94979/katya-katya-shehurina-liliana.jpg" alt="KATYA KATYA SHEHURINA Liliana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-feather/43615-katya-katya-shehurina-liliana.html"><img src="//static.msromantic.com/94979/katya-katya-shehurina-liliana.jpg" alt="KATYA KATYA SHEHURINA Liliana" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-feather/43615-katya-katya-shehurina-liliana.html](https://www.readybrides.com/en/katya-katya-shehurina-feather/43615-katya-katya-shehurina-liliana.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-feather/43615-katya-katya-shehurina-liliana.html](https://www.antebrands.com/en/katya-katya-shehurina-feather/43615-katya-katya-shehurina-liliana.html)

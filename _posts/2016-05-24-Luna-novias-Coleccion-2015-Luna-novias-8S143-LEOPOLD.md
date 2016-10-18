@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2015]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46156-luna-novias-8s143-leopold.html"><img src="//static.msromantic.com/101544/luna-novias-8s143-leopold.jpg" alt="Luna novias 8S143 LEOPOLD" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46156-luna-novias-8s143-leopold.html"><img src="//static.msromantic.com/101544/luna-novias-8s143-leopold.jpg" alt="Luna novias 8S143 LEOPOLD" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46156-luna-novias-8s143-leopold.html"><img src="//static.msromantic.com/101543/luna-novias-8s143-leopold.jpg" alt="Luna novias 8S143 LEOPOLD" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2015/46156-luna-novias-8s143-leopold.html](https://www.readybrides.com/en/luna-novias-coleccion-2015/46156-luna-novias-8s143-leopold.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46156-luna-novias-8s143-leopold.html"><img src="//static.msromantic.com/101543/luna-novias-8s143-leopold.jpg" alt="Luna novias 8S143 LEOPOLD" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2015/46156-luna-novias-8s143-leopold.html](https://www.antebrands.com/en/luna-novias-coleccion-2015/46156-luna-novias-8s143-leopold.html)

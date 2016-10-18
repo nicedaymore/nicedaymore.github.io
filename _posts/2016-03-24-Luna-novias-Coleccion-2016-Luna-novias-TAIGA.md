@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2016]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46095-luna-novias-taiga.html"><img src="//static.msromantic.com/101411/luna-novias-taiga.jpg" alt="Luna novias TAIGA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46095-luna-novias-taiga.html"><img src="//static.msromantic.com/101411/luna-novias-taiga.jpg" alt="Luna novias TAIGA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46095-luna-novias-taiga.html"><img src="//static.msromantic.com/101410/luna-novias-taiga.jpg" alt="Luna novias TAIGA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2016/46095-luna-novias-taiga.html](https://www.readybrides.com/en/luna-novias-coleccion-2016/46095-luna-novias-taiga.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46095-luna-novias-taiga.html"><img src="//static.msromantic.com/101410/luna-novias-taiga.jpg" alt="Luna novias TAIGA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2016/46095-luna-novias-taiga.html](https://www.antebrands.com/en/luna-novias-coleccion-2016/46095-luna-novias-taiga.html)

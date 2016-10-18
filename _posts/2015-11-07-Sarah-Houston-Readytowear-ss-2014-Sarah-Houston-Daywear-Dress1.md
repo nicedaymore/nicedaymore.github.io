@@ -9,7 +9,7 @@ tags: [Sarah Houston Readytowear ss 2014]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/sarah-houston-readytowear-ss-2014/47358-sarah-houston-daywear-dress1.html"><img src="//static.msromantic.com/103522/sarah-houston-daywear-dress1.jpg" alt="Sarah Houston Daywear Dress1" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sarah-houston-readytowear-ss-2014/47358-sarah-houston-daywear-dress1.html"><img src="//static.msromantic.com/103522/sarah-houston-daywear-dress1.jpg" alt="Sarah Houston Daywear Dress1" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/sarah-houston-readytowear-ss-2014/47358-sarah-houston-daywear-dress1.html](https://www.readybrides.com/en/sarah-houston-readytowear-ss-2014/47358-sarah-houston-daywear-dress1.html)
+Buy it: [https://www.antebrands.com/en/sarah-houston-readytowear-ss-2014/47358-sarah-houston-daywear-dress1.html](https://www.antebrands.com/en/sarah-houston-readytowear-ss-2014/47358-sarah-houston-daywear-dress1.html)

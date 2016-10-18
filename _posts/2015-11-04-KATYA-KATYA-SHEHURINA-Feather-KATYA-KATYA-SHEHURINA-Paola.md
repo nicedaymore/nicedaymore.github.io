@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA Feather]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-feather/43619-katya-katya-shehurina-paola.html"><img src="//static.msromantic.com/94983/katya-katya-shehurina-paola.jpg" alt="KATYA KATYA SHEHURINA Paola" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-feather/43619-katya-katya-shehurina-paola.html"><img src="//static.msromantic.com/94983/katya-katya-shehurina-paola.jpg" alt="KATYA KATYA SHEHURINA Paola" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-feather/43619-katya-katya-shehurina-paola.html](https://www.readybrides.com/en/katya-katya-shehurina-feather/43619-katya-katya-shehurina-paola.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-feather/43619-katya-katya-shehurina-paola.html](https://www.antebrands.com/en/katya-katya-shehurina-feather/43619-katya-katya-shehurina-paola.html)

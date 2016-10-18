@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA Venice]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-venice/43593-katya-katya-shehurina-nicole.html"><img src="//static.msromantic.com/94957/katya-katya-shehurina-nicole.jpg" alt="KATYA KATYA SHEHURINA Nicole" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-venice/43593-katya-katya-shehurina-nicole.html"><img src="//static.msromantic.com/94957/katya-katya-shehurina-nicole.jpg" alt="KATYA KATYA SHEHURINA Nicole" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-venice/43593-katya-katya-shehurina-nicole.html](https://www.readybrides.com/en/katya-katya-shehurina-venice/43593-katya-katya-shehurina-nicole.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-venice/43593-katya-katya-shehurina-nicole.html](https://www.antebrands.com/en/katya-katya-shehurina-venice/43593-katya-katya-shehurina-nicole.html)

@@ -9,7 +9,7 @@ tags: [KATYA KATYA SHEHURINA SS15]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/katya-katya-shehurina-ss15/43648-katya-katya-shehurina-fannie.html"><img src="//static.msromantic.com/95012/katya-katya-shehurina-fannie.jpg" alt="KATYA KATYA SHEHURINA Fannie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/katya-katya-shehurina-ss15/43648-katya-katya-shehurina-fannie.html"><img src="//static.msromantic.com/95012/katya-katya-shehurina-fannie.jpg" alt="KATYA KATYA SHEHURINA Fannie" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/katya-katya-shehurina-ss15/43648-katya-katya-shehurina-fannie.html](https://www.readybrides.com/en/katya-katya-shehurina-ss15/43648-katya-katya-shehurina-fannie.html)
+Buy it: [https://www.antebrands.com/en/katya-katya-shehurina-ss15/43648-katya-katya-shehurina-fannie.html](https://www.antebrands.com/en/katya-katya-shehurina-ss15/43648-katya-katya-shehurina-fannie.html)

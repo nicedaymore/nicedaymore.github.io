@@ -9,8 +9,8 @@ tags: [NOVIA D ART,Sheath/Column,Illusion,Chapel Train,Long Sleeves]
 Just **$339.99**
 ###   Long Sleeves Chapel Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>NOVIA D ART</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/novia-d-art/46952-novia-d-art-aretha.html"><img src="//static.msromantic.com/103055/novia-d-art-aretha.jpg" alt="NOVIA D ART ARETHA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/novia-d-art/46952-novia-d-art-aretha.html"><img src="//static.msromantic.com/103055/novia-d-art-aretha.jpg" alt="NOVIA D ART ARETHA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/novia-d-art/46952-novia-d-art-aretha.html"><img src="//static.msromantic.com/103056/novia-d-art-aretha.jpg" alt="NOVIA D ART ARETHA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/novia-d-art/46952-novia-d-art-aretha.html"><img src="//static.msromantic.com/103054/novia-d-art-aretha.jpg" alt="NOVIA D ART ARETHA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/novia-d-art/46952-novia-d-art-aretha.html](https://www.readybrides.com/en/novia-d-art/46952-novia-d-art-aretha.html)
+<!-- break --><a href="https://www.antebrands.com/en/novia-d-art/46952-novia-d-art-aretha.html"><img src="//static.msromantic.com/103056/novia-d-art-aretha.jpg" alt="NOVIA D ART ARETHA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/novia-d-art/46952-novia-d-art-aretha.html"><img src="//static.msromantic.com/103054/novia-d-art-aretha.jpg" alt="NOVIA D ART ARETHA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/novia-d-art/46952-novia-d-art-aretha.html](https://www.antebrands.com/en/novia-d-art/46952-novia-d-art-aretha.html)

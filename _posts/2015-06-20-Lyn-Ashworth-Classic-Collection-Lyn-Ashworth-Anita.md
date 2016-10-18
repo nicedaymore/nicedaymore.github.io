@@ -9,8 +9,8 @@ tags: [Lyn Ashworth Classic Collection]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html"><img src="//static.msromantic.com/99032/lyn-ashworth-anita.jpg" alt="Lyn Ashworth Anita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html"><img src="//static.msromantic.com/99032/lyn-ashworth-anita.jpg" alt="Lyn Ashworth Anita" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html"><img src="//static.msromantic.com/99033/lyn-ashworth-anita.jpg" alt="Lyn Ashworth Anita" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html"><img src="//static.msromantic.com/99031/lyn-ashworth-anita.jpg" alt="Lyn Ashworth Anita" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html](https://www.readybrides.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html)
+<!-- break --><a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html"><img src="//static.msromantic.com/99033/lyn-ashworth-anita.jpg" alt="Lyn Ashworth Anita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html"><img src="//static.msromantic.com/99031/lyn-ashworth-anita.jpg" alt="Lyn Ashworth Anita" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html](https://www.antebrands.com/en/lyn-ashworth-classic-collection/45350-lyn-ashworth-anita.html)

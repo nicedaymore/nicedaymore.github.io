@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2016]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46041-luna-novias-timbal.html"><img src="//static.msromantic.com/101298/luna-novias-timbal.jpg" alt="Luna novias TIMBAL" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46041-luna-novias-timbal.html"><img src="//static.msromantic.com/101298/luna-novias-timbal.jpg" alt="Luna novias TIMBAL" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46041-luna-novias-timbal.html"><img src="//static.msromantic.com/101297/luna-novias-timbal.jpg" alt="Luna novias TIMBAL" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2016/46041-luna-novias-timbal.html](https://www.readybrides.com/en/luna-novias-coleccion-2016/46041-luna-novias-timbal.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46041-luna-novias-timbal.html"><img src="//static.msromantic.com/101297/luna-novias-timbal.jpg" alt="Luna novias TIMBAL" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2016/46041-luna-novias-timbal.html](https://www.antebrands.com/en/luna-novias-coleccion-2016/46041-luna-novias-timbal.html)

@@ -9,7 +9,7 @@ tags: [Modern Trousseau,Modern Trousseau ,Aline/Princess ,Off The Shoulder,Court
 Just **$349.99**
 ###   1/2 Sleeves Court Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Modern Trousseau </td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Off The Shoulder</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>1/2 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/modern-trousseau/46529-modern-trousseau-aria.html"><img src="//static.msromantic.com/102362/modern-trousseau-aria.jpg" alt="Modern Trousseau Aria" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modern-trousseau/46529-modern-trousseau-aria.html"><img src="//static.msromantic.com/102362/modern-trousseau-aria.jpg" alt="Modern Trousseau Aria" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/modern-trousseau/46529-modern-trousseau-aria.html](https://www.readybrides.com/en/modern-trousseau/46529-modern-trousseau-aria.html)
+Buy it: [https://www.antebrands.com/en/modern-trousseau/46529-modern-trousseau-aria.html](https://www.antebrands.com/en/modern-trousseau/46529-modern-trousseau-aria.html)

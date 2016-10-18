@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2015]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46148-luna-novias-8s131-leana.html"><img src="//static.msromantic.com/101527/luna-novias-8s131-leana.jpg" alt="Luna novias 8S131 LEANA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46148-luna-novias-8s131-leana.html"><img src="//static.msromantic.com/101527/luna-novias-8s131-leana.jpg" alt="Luna novias 8S131 LEANA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46148-luna-novias-8s131-leana.html"><img src="//static.msromantic.com/101526/luna-novias-8s131-leana.jpg" alt="Luna novias 8S131 LEANA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2015/46148-luna-novias-8s131-leana.html](https://www.readybrides.com/en/luna-novias-coleccion-2015/46148-luna-novias-8s131-leana.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46148-luna-novias-8s131-leana.html"><img src="//static.msromantic.com/101526/luna-novias-8s131-leana.jpg" alt="Luna novias 8S131 LEANA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2015/46148-luna-novias-8s131-leana.html](https://www.antebrands.com/en/luna-novias-coleccion-2015/46148-luna-novias-8s131-leana.html)

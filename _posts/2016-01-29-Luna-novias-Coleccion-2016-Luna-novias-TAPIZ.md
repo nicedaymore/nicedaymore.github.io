@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2016]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46040-luna-novias-tapiz.html"><img src="//static.msromantic.com/101296/luna-novias-tapiz.jpg" alt="Luna novias TAPIZ" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46040-luna-novias-tapiz.html"><img src="//static.msromantic.com/101296/luna-novias-tapiz.jpg" alt="Luna novias TAPIZ" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46040-luna-novias-tapiz.html"><img src="//static.msromantic.com/101295/luna-novias-tapiz.jpg" alt="Luna novias TAPIZ" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2016/46040-luna-novias-tapiz.html](https://www.readybrides.com/en/luna-novias-coleccion-2016/46040-luna-novias-tapiz.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46040-luna-novias-tapiz.html"><img src="//static.msromantic.com/101295/luna-novias-tapiz.jpg" alt="Luna novias TAPIZ" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2016/46040-luna-novias-tapiz.html](https://www.antebrands.com/en/luna-novias-coleccion-2016/46040-luna-novias-tapiz.html)

@@ -9,7 +9,7 @@ tags: [Vania Romoff AW 2013]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/vania-romoff-aw-2013/43337-vania-romoff-aw-2013-style-2.html"><img src="//static.msromantic.com/94698/vania-romoff-aw-2013-style-2.jpg" alt="Vania Romoff AW 2013 Style 2" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/vania-romoff-aw-2013/43337-vania-romoff-aw-2013-style-2.html"><img src="//static.msromantic.com/94698/vania-romoff-aw-2013-style-2.jpg" alt="Vania Romoff AW 2013 Style 2" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/vania-romoff-aw-2013/43337-vania-romoff-aw-2013-style-2.html"><img src="//static.msromantic.com/94697/vania-romoff-aw-2013-style-2.jpg" alt="Vania Romoff AW 2013 Style 2" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/vania-romoff-aw-2013/43337-vania-romoff-aw-2013-style-2.html](https://www.readybrides.com/en/vania-romoff-aw-2013/43337-vania-romoff-aw-2013-style-2.html)
+<!-- break --><a href="https://www.antebrands.com/en/vania-romoff-aw-2013/43337-vania-romoff-aw-2013-style-2.html"><img src="//static.msromantic.com/94697/vania-romoff-aw-2013-style-2.jpg" alt="Vania Romoff AW 2013 Style 2" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/vania-romoff-aw-2013/43337-vania-romoff-aw-2013-style-2.html](https://www.antebrands.com/en/vania-romoff-aw-2013/43337-vania-romoff-aw-2013-style-2.html)

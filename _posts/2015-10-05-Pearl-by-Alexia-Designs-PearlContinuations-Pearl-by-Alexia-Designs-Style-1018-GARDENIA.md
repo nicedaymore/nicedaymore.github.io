@@ -9,7 +9,7 @@ tags: [Pearl by Alexia Designs PearlContinuations]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pearl-by-alexia-designs-pearlcontinuations/46858-pearl-by-alexia-designs-style-1018-gardenia.html"><img src="//static.msromantic.com/102797/pearl-by-alexia-designs-style-1018-gardenia.jpg" alt="Pearl by Alexia Designs Style 1018 GARDENIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pearl-by-alexia-designs-pearlcontinuations/46858-pearl-by-alexia-designs-style-1018-gardenia.html"><img src="//static.msromantic.com/102797/pearl-by-alexia-designs-style-1018-gardenia.jpg" alt="Pearl by Alexia Designs Style 1018 GARDENIA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pearl-by-alexia-designs-pearlcontinuations/46858-pearl-by-alexia-designs-style-1018-gardenia.html](https://www.readybrides.com/en/pearl-by-alexia-designs-pearlcontinuations/46858-pearl-by-alexia-designs-style-1018-gardenia.html)
+Buy it: [https://www.antebrands.com/en/pearl-by-alexia-designs-pearlcontinuations/46858-pearl-by-alexia-designs-style-1018-gardenia.html](https://www.antebrands.com/en/pearl-by-alexia-designs-pearlcontinuations/46858-pearl-by-alexia-designs-style-1018-gardenia.html)

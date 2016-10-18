@@ -9,7 +9,7 @@ tags: [Mia Mia]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mia-mia/46301-mia-mia-bridal-monica.html"><img src="//static.msromantic.com/101808/mia-mia-bridal-monica.jpg" alt="Mia Mia Bridal Monica" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mia-mia/46301-mia-mia-bridal-monica.html"><img src="//static.msromantic.com/101808/mia-mia-bridal-monica.jpg" alt="Mia Mia Bridal Monica" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mia-mia/46301-mia-mia-bridal-monica.html"><img src="//static.msromantic.com/101807/mia-mia-bridal-monica.jpg" alt="Mia Mia Bridal Monica" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mia-mia/46301-mia-mia-bridal-monica.html](https://www.readybrides.com/en/mia-mia/46301-mia-mia-bridal-monica.html)
+<!-- break --><a href="https://www.antebrands.com/en/mia-mia/46301-mia-mia-bridal-monica.html"><img src="//static.msromantic.com/101807/mia-mia-bridal-monica.jpg" alt="Mia Mia Bridal Monica" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mia-mia/46301-mia-mia-bridal-monica.html](https://www.antebrands.com/en/mia-mia/46301-mia-mia-bridal-monica.html)

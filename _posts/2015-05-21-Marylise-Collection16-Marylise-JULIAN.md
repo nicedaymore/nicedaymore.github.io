@@ -9,7 +9,7 @@ tags: [Marylise Collection16]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/marylise-collection16/46254-marylise-julian.html"><img src="//static.msromantic.com/101730/marylise-julian.jpg" alt="Marylise JULIAN" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marylise-collection16/46254-marylise-julian.html"><img src="//static.msromantic.com/101730/marylise-julian.jpg" alt="Marylise JULIAN" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/marylise-collection16/46254-marylise-julian.html](https://www.readybrides.com/en/marylise-collection16/46254-marylise-julian.html)
+Buy it: [https://www.antebrands.com/en/marylise-collection16/46254-marylise-julian.html](https://www.antebrands.com/en/marylise-collection16/46254-marylise-julian.html)

@@ -9,7 +9,7 @@ tags: [J. Mendel,Sheath/Column,Floor-Length,Sleeveless]
 Just **$379.99**
 ###   Sleeveless Floor-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>J. Mendel</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/j-mendel/44367-j-mendel-bridal-2015-collection-style-3.html"><img src="//static.msromantic.com/96937/j-mendel-bridal-2015-collection-style-3.jpg" alt="J. Mendel bridal-2015-collection Style 3" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/j-mendel/44367-j-mendel-bridal-2015-collection-style-3.html"><img src="//static.msromantic.com/96937/j-mendel-bridal-2015-collection-style-3.jpg" alt="J. Mendel bridal-2015-collection Style 3" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/j-mendel/44367-j-mendel-bridal-2015-collection-style-3.html](https://www.readybrides.com/en/j-mendel/44367-j-mendel-bridal-2015-collection-style-3.html)
+Buy it: [https://www.antebrands.com/en/j-mendel/44367-j-mendel-bridal-2015-collection-style-3.html](https://www.antebrands.com/en/j-mendel/44367-j-mendel-bridal-2015-collection-style-3.html)

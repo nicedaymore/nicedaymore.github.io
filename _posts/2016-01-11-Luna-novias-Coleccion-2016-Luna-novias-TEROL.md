@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2016]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46022-luna-novias-terol.html"><img src="//static.msromantic.com/101257/luna-novias-terol.jpg" alt="Luna novias TEROL" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46022-luna-novias-terol.html"><img src="//static.msromantic.com/101257/luna-novias-terol.jpg" alt="Luna novias TEROL" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2016/46022-luna-novias-terol.html"><img src="//static.msromantic.com/101256/luna-novias-terol.jpg" alt="Luna novias TEROL" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2016/46022-luna-novias-terol.html](https://www.readybrides.com/en/luna-novias-coleccion-2016/46022-luna-novias-terol.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2016/46022-luna-novias-terol.html"><img src="//static.msromantic.com/101256/luna-novias-terol.jpg" alt="Luna novias TEROL" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2016/46022-luna-novias-terol.html](https://www.antebrands.com/en/luna-novias-coleccion-2016/46022-luna-novias-terol.html)

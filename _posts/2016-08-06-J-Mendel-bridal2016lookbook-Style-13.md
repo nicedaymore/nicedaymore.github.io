@@ -9,7 +9,7 @@ tags: [J. Mendel]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/j-mendel/44362-j-mendel-bridal-2016-lookbook-style-13.html"><img src="//static.msromantic.com/96932/j-mendel-bridal-2016-lookbook-style-13.jpg" alt="J. Mendel bridal-2016-lookbook Style 13" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/j-mendel/44362-j-mendel-bridal-2016-lookbook-style-13.html"><img src="//static.msromantic.com/96932/j-mendel-bridal-2016-lookbook-style-13.jpg" alt="J. Mendel bridal-2016-lookbook Style 13" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/j-mendel/44362-j-mendel-bridal-2016-lookbook-style-13.html](https://www.readybrides.com/en/j-mendel/44362-j-mendel-bridal-2016-lookbook-style-13.html)
+Buy it: [https://www.antebrands.com/en/j-mendel/44362-j-mendel-bridal-2016-lookbook-style-13.html](https://www.antebrands.com/en/j-mendel/44362-j-mendel-bridal-2016-lookbook-style-13.html)

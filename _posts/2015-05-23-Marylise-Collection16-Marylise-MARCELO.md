@@ -9,7 +9,7 @@ tags: [Marylise Collection16]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/marylise-collection16/46256-marylise-marcelo.html"><img src="//static.msromantic.com/101732/marylise-marcelo.jpg" alt="Marylise MARCELO" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marylise-collection16/46256-marylise-marcelo.html"><img src="//static.msromantic.com/101732/marylise-marcelo.jpg" alt="Marylise MARCELO" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/marylise-collection16/46256-marylise-marcelo.html](https://www.readybrides.com/en/marylise-collection16/46256-marylise-marcelo.html)
+Buy it: [https://www.antebrands.com/en/marylise-collection16/46256-marylise-marcelo.html](https://www.antebrands.com/en/marylise-collection16/46256-marylise-marcelo.html)

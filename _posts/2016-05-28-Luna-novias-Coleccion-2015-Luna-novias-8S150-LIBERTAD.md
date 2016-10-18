@@ -9,7 +9,7 @@ tags: [Luna novias Coleccion 2015]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46160-luna-novias-8s150-libertad.html"><img src="//static.msromantic.com/101553/luna-novias-8s150-libertad.jpg" alt="Luna novias 8S150 LIBERTAD" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46160-luna-novias-8s150-libertad.html"><img src="//static.msromantic.com/101553/luna-novias-8s150-libertad.jpg" alt="Luna novias 8S150 LIBERTAD" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/luna-novias-coleccion-2015/46160-luna-novias-8s150-libertad.html"><img src="//static.msromantic.com/101552/luna-novias-8s150-libertad.jpg" alt="Luna novias 8S150 LIBERTAD" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/luna-novias-coleccion-2015/46160-luna-novias-8s150-libertad.html](https://www.readybrides.com/en/luna-novias-coleccion-2015/46160-luna-novias-8s150-libertad.html)
+<!-- break --><a href="https://www.antebrands.com/en/luna-novias-coleccion-2015/46160-luna-novias-8s150-libertad.html"><img src="//static.msromantic.com/101552/luna-novias-8s150-libertad.jpg" alt="Luna novias 8S150 LIBERTAD" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/luna-novias-coleccion-2015/46160-luna-novias-8s150-libertad.html](https://www.antebrands.com/en/luna-novias-coleccion-2015/46160-luna-novias-8s150-libertad.html)

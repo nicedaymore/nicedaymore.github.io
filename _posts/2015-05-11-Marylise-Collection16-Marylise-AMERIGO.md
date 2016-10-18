@@ -9,7 +9,7 @@ tags: [Marylise Collection16]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/marylise-collection16/46244-marylise-amerigo.html"><img src="//static.msromantic.com/101720/marylise-amerigo.jpg" alt="Marylise AMERIGO" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/marylise-collection16/46244-marylise-amerigo.html"><img src="//static.msromantic.com/101720/marylise-amerigo.jpg" alt="Marylise AMERIGO" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/marylise-collection16/46244-marylise-amerigo.html](https://www.readybrides.com/en/marylise-collection16/46244-marylise-amerigo.html)
+Buy it: [https://www.antebrands.com/en/marylise-collection16/46244-marylise-amerigo.html](https://www.antebrands.com/en/marylise-collection16/46244-marylise-amerigo.html)
