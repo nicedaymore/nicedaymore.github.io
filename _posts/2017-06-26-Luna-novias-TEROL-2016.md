@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-06-26'
+date: 2017-06-26
 title: "Luna novias TEROL 2016"
 category: Luna novias
 tags: [Luna novias,2016]

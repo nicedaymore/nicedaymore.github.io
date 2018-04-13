@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-08-22'
+date: 2016-08-22
 title: "Jim Hjelm Occasions Style jh5556 2015 Fall Sleeveless Floor-Length Aline/Princess"
 category: Jim Hjelm
 tags: [Jim Hjelm,JLM Couture-Jim Hjelm,Aline/Princess ,V-neck,Floor-Length,Sleeveless,2015,Fall]

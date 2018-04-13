@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2015-08-24'
+date: 2015-08-24
 title: "JLM Couture-Ti Adora Ti Adora Style 7503 2015 Spring Sleeveless Short/Mini Aline/Princess"
 category: JLM Couture-Ti Adora 
 tags: [JLM Couture-Ti Adora ,Aline/Princess ,Bateau,Short/Mini,Sleeveless,2015,Spring]
